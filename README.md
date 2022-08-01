@@ -2,7 +2,7 @@
 - 👀 estou aprendendo programação 
 - 🌱 estou preucurendo aprender o maximo 
 - 💞️ quero colaborar com meu aprendisado 
-- 📫 para chegar até mim é so mandar um zap 
+- 📫 para chegar até mim é so mandar um gmail 
 -
 
 <!---
