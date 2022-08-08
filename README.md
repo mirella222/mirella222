@@ -1,6 +1,6 @@
 - 👋 meu nome mirela 
 - 👀 estou aprendendo programação de linguagem  
-- 🌱 estou preucurendo aprender o maximo 
+- 🌱 estou preucurando aprender o maximo 
 - 💞️ quero colaborar com meu aprendisado 
 - 📫 para chegar até mim é so mandar um gmail 
 -meu gmail é oliveira.mirela@escola.pr.gov.br
